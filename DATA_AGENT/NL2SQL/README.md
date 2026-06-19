@@ -1,0 +1,2 @@
+# AGI
+ALL IN AI
